@@ -9,7 +9,7 @@
 
 - 📫 Cara menghubungi saya **akunfigma666@gmail.com**
 
-- ⚡ Fakta menarik **Masih masa belajar, tetap semangat!**
+- ⚡ Fakta menarik **Masih masa belajar, tetap semangat!** 
 
 <h3 align="left">Bahasa dan Alat:</h3>
 <p align="left">
